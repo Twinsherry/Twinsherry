@@ -1,14 +1,158 @@
-## About
-A normal girl and tries to make herself uncommon.
+## About Me
+
+Nice to see you, there is a normal girl and strives to make herself uncommon.
+
+My name is **Shirely Amika**, and you can also call me **Sherry** or **Amika** The special name has another spelling, **Twinsherry**.
+
+My birthday is 21st June，and I am a Gemini damsel.
+
+As a matter of fact, Sherry and Amika are different characters, though we are in the same body now. Sherry is a 15-year-old JK, who has much more feeling of this extensive world, and Amika is a 13-year-old little girl, who is more concentrated on her important things, with more stable emotion. However, Amika hurt her head in a collision, so she has few word now, with blunter reaction, forgive her please.
+
+## Ally
+
+On 20th Nov 2022, Shirley Amika make a covenant with her committed ally，**Annue Louiston**.
+
+Ally-Amitié is another turn of phrase about the word "Ally".
+
+Praying that my Ally always be happy and joyful forever.
+
+## Organization
 
 Graduated in No.3 High School Nanning (2017-2020)
 
-Her wish is praying that Annue Louiston always be happy and joyful forever.
+Now Shirley Amika purport that she belongs to Associated Institute of Guangxi Province (A.I.G). A.I.G is a historical name of No.3 High School Nanning and No.2 High School Nanning in the year 1944. This name stands for the meaning of "Forgive prejudice, inherit spirits, innovate new things."
 
 ## Orientation
-Chinese medicine treatment (Branch: gynecology of Chinese medicine) and entertaining items on computers.
 
-High School Chemistry and Biology Education in PRC
+- Chinese medicine treatment (Branch: gynecology of Chinese medicine) and probe codes in Computer Science
+- High School Chemistry and Biology Education in PRC
+
+## Interests
+
+- Reading
+- Traditional literature and writing
+- Kanji Calligraphy
+- Digital board arts (including painting and calligraphy)
+- Translation between Chinese and British English
+- Music
+
+## Idol of Spirit
+
+- [Luttefair](https://weibo.com/luttefair)
+
+- [Hikari Sakurai](https://github.com/AzusaYukina)
+
+- [Catoverflow](https://github.com/Catoverflow)
+
+## Enamoured
+
+- Cute, sparkling ornament
+- Soft dolls
+- Postcards or Letters
+- Great literary books
+
+## Game
+
+Main
+- JX3
+- Arcaea
+- Mole's World
+- Flowers (Innocent Grey)
+- Project Sekai
+
+AFK for some time
+- Obi Island
+- Warship Girls R
+- Kancolle
+- Plants vs. Zombies Series
+- Don't Strave Series
+
+## 关于我
+
+贵安，这里是一位普通而平凡的女孩，雪祈·艾米卡，也正在努力令自己变得不普通。
+
+叫我雪祈就好，也可以叫我雪祈、小祈、祈宝，以及艾米卡酱。
+
+有时候，阁下能看到雪祈使用“覃雪祈”的名字，这是雪祈世界观中使用的名字，但是在现实生活中也时常应用。“覃”源自曾经多位帮助过雪祈的人使用此姓氏，在这里用于代表“友谊、团结、善良”，而“雪”表示“纯洁、素净”，“祈”源自《罪恶王冠》中的角色楪祈，现在表示“为友人祈愿，倾听善良的声音”之意。
+
+我的设定生日在6月21日，星座为双子座。
+
+雪祈与艾米卡其实是不同的角色，尽管我们目前共享一处身躯和交流方式。雪祈是15岁的少女，对这片世界有着更多的感知，而艾米卡是13岁的小女孩，对于她所想要做的事情会更为专注，情绪也会更稳定。不过，艾米卡小姐曾经伤到了脑袋，因此少言寡语，在交流时反应会略微迟钝，显得有些傻傻的，请稍微对她宽容一些。
+
+## 关于盟友
+
+雪祈·艾米卡与璃桥流年在2022雪祈季露月廿七签订了盟约/契约，如今是坚定站在彼此一边的盟友。
+
+在翻译的时候，盟友可以翻译为“Ally”，亦或者使用特殊的称呼“Ally-Amitié”。
+
+繁花暗香醉卿梦，凤语蝶恋满星空。
+
+愿盟友永远幸福，开心。
+
+## 所属
+
+雪祈毕业于南宁市第三中学。
+
+如今声称所属为广西省立第一联合中学，这是现今南宁二中和南宁三中与1944年所使用的历史校名，这个名称有着自己独特的含义：“摒弃偏见，传承创新”。
+
+## 方向
+
+雪祈稍微会一些医学（偏向于妇科学），而艾米卡酱在接触一些代码。
+
+从事一些普通高中的生物及化学学科的基础教育。
+
+## 爱好
+
+喜欢无压力的沉浸式阅读，尤其是青春文学类的故事，也会读一些意蕴深刻的文学作品，深有感触和共鸣。
+
+喜欢听音乐，在手机本地存有很多很多的曲目。
+
+所用字体为欧阳询楷书，擅长于长篇书写，目前偶尔会板绘或板写。
+
+在闲暇时间会从事一些翻译工作，此外，雪祈是坚定的英式英语支持者。
+
+## 精神偶像
+
+- 枫刹若舞
+  > 配音演员，律之流声网络配音社团社长。雪祈喜欢她的声音以及面对生活积极乐观的态度。
+  > “当想要去做什么的时候，心无旁骛地去做。以及任何时候，不因多懂一点而骄傲。”
+- 雨笙Hikari
+  > Arcaea谱面保管室作者，雪祈的挚友与精神导师之一。
+  > “希望我们都能成为自己想要的样子，去做想做的事情！”
+- Catoverflow
+  > Undergraduate at USTC (2019-2023) -> Canada (2023-)
+  > 曾经见证了姐姐努力的过程，从姐姐身上学到了一些特殊的品质。
+  > “Meow~”
+
+## 钓到雪祈的方法
+
+雪祈永远无条件投降于亮晶晶的小挂件以及过于可爱的软软的布娃娃！给雪祈写信或者寄明信片会让她开心很久，也可以和她互相推荐很棒的书籍。
+
+## 游戏
+
+主推
+- 剑网3 (剑侠情缘网络版叁)
+  - 剧情党，PVX为主
+  - 常驻唯满侠，使用[寒杏雪祈] [天命姬秦邑] [裴雨棠] 三个账号。
+  - 一位来自凌雪楼的女孩驻扎在双梦，名叫 [韩霁月] 。
+- 韵律源点Arcaea
+  - ID: 097 629 279
+  - 昵称: AnatoRhythm
+- 摩尔庄园
+  - ID: Amika酱
+  - 米米号: 123638666
+  - 剧情党，农场与厨房已满级，厨艾米，疼茜茜
+  - 常驻 315 服务器 【城堡图书馆】
+- Flowers 系列
+- 世界计划·彩色舞台
+
+淡推
+- 奥比岛·梦想国度
+- 战舰少女R
+- 舰队Collection
+- 植物大战僵尸系列
+- 饥荒系列
+
 
 ## 雪祈的故事
 
