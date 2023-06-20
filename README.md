@@ -1,6 +1,6 @@
 ## About Me
 
-Nice to see you, there is a normal girl and strives to make herself uncommon.
+Nice to see you, there is a normal girl who is struggling to make herself uncommon.
 
 My name is **Shirely Amika**, and you can also call me **Sherry** or **Amika** The special name has another spelling, **Twinsherry**.
 
