@@ -1,3 +1,28 @@
+## Content
+
+English Version
+- [About Me](#about-me)
+- [Ally](#ally)
+- [Organization](#organization)
+- [Orientation](#orientation)
+- [Interests](#interests)
+- [Idol of Spirit](#idol-of-spirit)
+- [Enamoured](#enamoured)
+- [Game](#game)
+
+Chinese Version
+- [关于我](#关于我)
+- [关于盟友](#关于盟友)
+- [所属](#所属)
+- [方向](#方向)
+- [爱好](#爱好)
+- [精神偶像](#精神偶像)
+- [钓到雪祈的方法](#钓到雪祈的方法)
+- [游戏](#游戏)
+
+Some Story
+- [Shirley Amika's Story](#雪祈的故事)
+
 ## About Me
 
 Nice to see you, there is a normal girl who is struggling to make herself uncommon.
