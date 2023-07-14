@@ -65,7 +65,7 @@ Now Shirley Amika purport that she belongs to Associated Institute of Guangxi Pr
 
 - [Luttefair](https://weibo.com/luttefair)
 
-- [Hikari Sakurai](https://github.com/AzusaYukina)
+- Mysterious Sister
 
 - [Catoverflow](https://github.com/Catoverflow)
 
@@ -142,10 +142,10 @@ AFK for some time
   > 配音演员，律之流声网络配音社团社长。雪祈喜欢她的声音以及面对生活积极乐观的态度。
   > 
   > “当想要去做什么的时候，心无旁骛地去做。以及任何时候，不因多懂一点而骄傲。”
-- 雨笙Hikari
-  > Arcaea谱面保管室作者，雪祈的挚友与精神导师之一。
+- 神秘的姐姐
+  > 雪祈的挚友与精神导师之一。
   > 
-  > “希望我们都能成为自己想要的样子，去做想做的事情！”
+  > 希望自己不会再伤害到她了。
 - Catoverflow
   > Undergraduate at USTC (2019-2023) -> Canada (2023-)
   > 
