@@ -1,3 +1,9 @@
+## News
+[雪祈的英文日记](https://github.com/Twinsherry/Diary_English_Version)已经发布。
+> 本日记旨在提升雪祈的英文写作应用水平，同时记载部分故事。
+>
+> 经C姐姐的提议，本日记使用特别的commit语言。
+
 ## Content
 
 English Version
