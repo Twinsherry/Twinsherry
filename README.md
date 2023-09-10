@@ -1,4 +1,6 @@
 ## News
+[雪祈只是想写一些东西](https://github.com/Twinsherry/Story)已经上传，目前尚未有较新的更新。
+
 [雪祈的英文日记](https://github.com/Twinsherry/Diary_English_Version)已经发布。
 > 本日记旨在提升雪祈的英文写作应用水平，同时记载部分故事。
 >
