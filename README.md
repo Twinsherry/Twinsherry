@@ -67,6 +67,8 @@ Now Shirley Amika purport that she belongs to Associated Institute of Guangxi Pr
 ## Orientation
 
 - Chinese medicine treatment (Branch: gynecology of Chinese medicine) and probe codes in Computer Science
+  - Html & CSS
+  - Java
 - High School Chemistry and Biology Education in PRC
 
 ## Interests
