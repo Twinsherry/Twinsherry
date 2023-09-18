@@ -11,6 +11,10 @@
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Twinsherry&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Twinsherry)](https://github.com/anuraghazra/github-readme-stats)
+
+<del> It seems that this stat item doesn't include Markdown as a lightweight markup language. </del>
+
+<del >Markdown is not "Markup" </del>
 ## Content
 
 English Version
