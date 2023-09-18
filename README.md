@@ -6,6 +6,11 @@
 >
 > 经C姐姐的提议，本日记使用特别的commit语言。
 
+## Stats
+
+[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Twinsherry&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
+
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Twinsherry)](https://github.com/anuraghazra/github-readme-stats)
 ## Content
 
 English Version
