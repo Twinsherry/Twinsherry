@@ -1,4 +1,6 @@
 ## News
+经雪祈与艾米卡酱沟通，涉及到深层计算机知识的内容全部移交给艾米卡酱处理。
+
 [雪祈只是想写一些东西](https://github.com/Twinsherry/Story)已经上传，目前尚未有较新的更新。
 
 [雪祈的英文日记](https://github.com/Twinsherry/Diary_English_Version)已经发布。
