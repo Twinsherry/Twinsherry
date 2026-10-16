@@ -38,3 +38,15 @@
 ![Skill Icons](https://skillicons.dev/icons?i=apple,au,css,eclipse,git,github,githubactions,gmail,html,htmx,java,js,lua,md,nodejs,npm,ps,powershell,pr,py,svg,twitter,vscode,windows,yarn&theme=light)
 
 </details> -->
+
+## 模组
+
+编花证章
+
+基础证章，无特殊效果。
+
+凯尔希擅长在战场上为干员提供治疗  
+根据外勤部门决议  
+在外勤任务中划分为医疗干员，行使医师职责  
+特别颁发此证章  
+以兹证明  
